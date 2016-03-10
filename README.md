@@ -1,0 +1,4 @@
+# Rock 'n' Roller
+As kids, we all enjoyed drawing on sidewalks, and we all enjoyed the feeling of being able to glide along the sidewalk on a pair of roller skates. Rock ‘n’ Roller will allow kids of all ages to combine both of these activities. As you roll down the sidewalk, stamps embedded in the wheel of your skates will leave a watery pattern behind you—it could be your name, a paw print, flowers, or whatever image you might want to rock down the block. You’ll be able to change the wheels relatively easily, allowing you to leave as many paths as you want on your skating trip. After skating, you can even review your path online, as well as what pattern you were leaving on the ground at any point along your path. Rock ‘n’ Roller will be a fun way to add an artistic aspect to anyone’s skating experience.
+
+Provocation 2: Critical Making 2016
